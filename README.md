@@ -1,0 +1,1 @@
+# iinfy-app-legal
